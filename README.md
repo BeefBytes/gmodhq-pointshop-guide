@@ -1,0 +1,1 @@
+# gmodhq-pointshop-guide
